@@ -1,7 +1,7 @@
 # Climax Global
 
 Climax Global make it possible to showcase you works. We have a team
-of expertises which are responsible for your product in Designing, Analysing, Visualizing and
+of expertises who gives your brand the best outlook and are responsible for your product in Designing, Analysing, Visualizing and
 Producing
 possible result for your works.
 
